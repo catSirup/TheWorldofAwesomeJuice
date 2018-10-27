@@ -35,7 +35,7 @@ Continuous touching action to blow your stress away
 [2]: http://storage.googleapis.com/cr-resource/image/99fd497010b2becad5bd3e2654511f2b/catsirup/1920/d78e614d1b84b23bc26cfecde6dce9c4.png (preview)
 
 ### Download Link
-[https://gamejolt.com/games/the-world-of-awesome-juice/178254](https://gamejolt.com/games/the-world-of-awesome-juice/178254)
+[https://gamejolt.com/games/the-world-of-awesome-juice/178254](https://gamejolt.com/games/the-world-of-awesome-juice/178254)</br>
 ※ You can play only Andorid Smartphone
 
 안드로이드 환경에서만 플레이가 가능합니다.
